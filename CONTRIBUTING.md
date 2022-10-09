@@ -1,3 +1,10 @@
+### Name: [Aanya kumari](https://github.com/Aanya9693)
+
+- Place: Kolkata, west bengal
+- Bio: Student at IIEST SHIBPUR
+- GitHub: [Aanya9693](https://github.com/Aanya9693)
+
+
 #### Name: [Harsh Shah](https://github.com/harsh-0986)
 
 - Place: Surat, India
